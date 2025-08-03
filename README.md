@@ -1,4 +1,4 @@
-# 👋 Olá, eu sou o Samuel Oliveira!
+# 👋 Olá! Eu sou o Samuel Oliveira — em transição para TI e apaixonado por tecnologia e música
 
 🎓 Estudante de Análise e Desenvolvimento de Sistemas  
 🏢 Profissional na PepsiCo | 🎧 Produtor musical criativo  
